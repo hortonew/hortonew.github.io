@@ -1,6 +1,6 @@
 ## Welcome to my blog
 
-More to come soon. 
+More to come soon. For now, visit: blog.hortonew.com
 
 ### Support or Contact
 
